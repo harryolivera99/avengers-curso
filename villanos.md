@@ -2,4 +2,4 @@
 
 * dr. Doom
 * Red Skull
-* dr. harold
+* Capitan America 
